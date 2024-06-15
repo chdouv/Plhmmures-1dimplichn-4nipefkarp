@@ -5,7 +5,7 @@
 https://blogs.sch.gr/chdouvletis/2024/06/15/fysikes-katastrofes-plimmyres-robostarjr-4o-nipiagogeio-eykarpias-kai-1o-dimotiko-scholeio-polichnis/
 
 <br>ΣΥΝΕΡΓΑΤΙΚΟ ΕΡΓΟ:
-<br>•	4ο 5/θέσιο Νηπιαγωγείο Ευκαρπίας (4 τμήματα)
+<br>•	4ο 5/θέσιο Νηπιαγωγείο Ευκαρπίας (1 τμήμα)
 <br>•	1ο Δημοτικό Σχολείο Πολίχνης (2 τμήματα)
 
 <br>ΠΡΟΤΑΣΗ 
