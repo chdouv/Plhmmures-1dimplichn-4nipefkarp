@@ -2,6 +2,8 @@
 <br>Έργο για τον διαγωνισμό ρομποτικής ΕΛΛΑΚ 2023-2024:Πλημμύρες - Φυσικές Καταστροφές
 <br>ΠΛΗΜΜΥΡΕΣ
 
+https://blogs.sch.gr/chdouvletis/2024/06/15/fysikes-katastrofes-plimmyres-robostarjr-4o-nipiagogeio-eykarpias-kai-1o-dimotiko-scholeio-polichnis/
+
 <br>ΣΥΝΕΡΓΑΤΙΚΟ ΕΡΓΟ:
 <br>•	4ο 5/θέσιο Νηπιαγωγείο Ευκαρπίας (4 τμήματα)
 <br>•	1ο Δημοτικό Σχολείο Πολίχνης (2 τμήματα)
